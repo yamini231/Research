@@ -1,4 +1,4 @@
-"# USA Civil Aircraft Ambulifts Market Size, Analysis and Key Manufacturers 2025 - 2031
+# USA Civil Aircraft Ambulifts Market Size, Analysis and Key Manufacturers 2025 - 2031
 
 <strong>Civil Aircraft Ambulifts Market Research Report 2031</strong>
 
