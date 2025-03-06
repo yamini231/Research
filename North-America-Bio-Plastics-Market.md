@@ -1,4 +1,4 @@
-"# North America Bio Plastics Market Growth, Size, Share, Trends, Forecasts to 2031
+# North America Bio Plastics Market Growth, Size, Share, Trends, Forecasts to 2031
 
 <Strong> Bio Plastics Market Overview 2025 - 2031</strong>
 
