@@ -1,4 +1,4 @@
-"# North America Waterproofing Systems Market Growth, Size, Share, Trends, Forecasts to 2031
+# North America Waterproofing Systems Market Growth, Size, Share, Trends, Forecasts to 2031
 
 <strong>Waterproofing Systems Market Research Report 2031</strong>
 
